@@ -1,1 +1,1 @@
-New cosmetic and more bug fixes last update for awhile unless its important but please dont wear mod cosmetics I have banned 1 person and so please do not wear those https://discord.gg/yYAevqcS9Q
+Little update to the board new beta go in the beta and have some fun in the escape room it is not yet but soon will be but please dont wear mod cosmetics I have banned 1 person and so please do not wear those https://discord.gg/yYAevqcS9Q
