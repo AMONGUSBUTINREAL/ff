@@ -1,1 +1,1 @@
-NEW EsCAPE ROOM IN JMAN LAND CHECK IT OUT NOT FULLY DONE THO it is not yet but soon will be but please dont wear mod cosmetics I have banned 1 person and so please do not wear those https://discord.gg/yYAevqcS9Q
+NEW UPDATE WATCH OUT MODS HAVE NOW KICK HAMMERS AND ONT WEAR IT OR YOU WILL GET BANNED ANDD JOIN DISCORD https://discord.gg/yYAevqcS9Q
